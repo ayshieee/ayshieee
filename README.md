@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @ayshieee
+# 👋 Hi, I’m Ishiemitch (ayshie) Laurel
 
 - 👀 I’m interested in exploring innovative tech solutions and real-world applications of IT.
 - 🌱 I’m currently learning new development tools and improving my project-building skills.
